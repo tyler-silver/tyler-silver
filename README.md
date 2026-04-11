@@ -1,4 +1,4 @@
-# Hello, I'm Tyler Argent 👋
+# Hello, I'm Tyler 👋
 
 🎓 IT graduate | 💻 Aspiring Cybersecurity Professional | 🚀 Driven by curiosity and learning.
 
